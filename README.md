@@ -1,1 +1,1 @@
-https://asia.canon/en/support/0200395215?utm_source=copilot.com# Link
+https://www.facebook.com/qr_code_login/?encrypted_blob=AbnZaMt8dkWY_ZNYexdNuo3nPjLYhm2vSeeFrE4BUNZlMlcU_hI5lDw44Z-kOpgo94j3vL7nlHEwxscn2PICtSFjZiPa0PYQHfw
