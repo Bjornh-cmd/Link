@@ -1,1 +1,1 @@
-https://www.facebook.com/qr_code_login/?encrypted_blob=AbnZaMt8dkWY_ZNYexdNuo3nPjLYhm2vSeeFrE4BUNZlMlcU_hI5lDw44Z-kOpgo94j3vL7nlHEwxscn2PICtSFjZiPa0PYQHfw
+https://www.facebook.com/qr_code_login/?encrypted_blob=AblBdG9WQnvLD77ndChKRTrOk1mvZepPHajSHYjruvgBzQD8s0tYrsSMGUbHc8A8Dwfu3cJAp6virrt5mcg9ONtUEYzLcFd2bQs
